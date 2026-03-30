@@ -6,3 +6,5 @@ Work start ho gaya h bas 5-10days just
 2 days Break 🥲
 
 Discipline >> Motivation
+
+Frontend approx completed
