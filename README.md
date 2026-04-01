@@ -8,3 +8,5 @@ Work start ho gaya h bas 5-10days just
 Discipline >> Motivation
 
 Frontend approx completed
+
+aaj class nahi ki 🥲
