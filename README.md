@@ -10,3 +10,5 @@ Discipline >> Motivation
 Frontend approx completed
 
 aaj class nahi ki 🥲
+
+Thoda sa hui h class
